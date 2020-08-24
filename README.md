@@ -6,7 +6,7 @@
 
 [Sumner Evans](https://sumnerevans.com/)
 
-- Contact: me (at) sumnerevans (dot) com
+- Contact: jonathanevans (at) mines (dot) edu
 - Office Hours: TBA
 
 ## Teaching Assistants (TA)
