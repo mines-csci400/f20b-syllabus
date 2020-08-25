@@ -7,7 +7,7 @@
 [Sumner Evans](https://sumnerevans.com/)
 
 - Contact: jonathanevans (at) mines (dot) edu
-- Office Hours: 5:00pm-6:00pm Tue Thu, Zoom
+- Office Hours: 5:00pm-6:00pm Tue Thu, [Zoom](https://piazza.com/class/ke7zken8i6n58f?cid=7)
 
 ## Teaching Assistants (TA)
 
