@@ -148,7 +148,7 @@ for your future career, so make sure you are behaving with the same level of pro
 would be expected at a future full-time position. The general rule of thumb is:
 **_informal_ is okay, but _disrespectful_ is not**.
 
-- It is vital that you do your best to be participate in the class, and communicate with the instructor(s) about any course-related difficulties you are facing.
+- It is vital that you do your best to participate in the class, and communicate with the instructor(s) about any course-related difficulties you are facing.
 
 Plagiarism/cheating is NOT acceptable, and will be met with the maximum available penalty.
 Sophisticated plagiarism-detection software will be used on every submitted assignment, and
